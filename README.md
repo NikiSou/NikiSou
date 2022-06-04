@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NikiSou
+- 👀 I’m interested in editing 
+- ❤️ I'm in a relationship 
+- ✨ I'm not important 
